@@ -1,1 +1,1 @@
-Series of LinkedIn posts
+Series of LinkedIn posts and articles
